@@ -1,0 +1,1 @@
+# typeA_Buddy
